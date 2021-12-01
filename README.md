@@ -26,4 +26,4 @@
 
 ![tajmahal](https://th-thumbnailer.cdn-si-edu.com/NaExfGA1op64-UvPUjYE5ZqCefk=/fit-in/1600x0/filters:focal(1471x1061:1472x1062)/https://tf-cmsv2-smithsonianmag-media.s3.amazonaws.com/filer/b6/30/b630b48b-7344-4661-9264-186b70531bdc/istock-478831658.jpg)
 
-![tom and jerry](https://upload.wikimedia.org/wikipedia/commons/thumb/f/fb/New7Wonders.jpg/276px-New7Wonders.jpg)
+![tom and jerry](https://i1.wp.com/media.premiumtimesng.com/wp-content/files/2020/04/Tom-and-Jerry-e1587475883217.jpg?resize=800%2C570&ssl=1)
