@@ -11,6 +11,8 @@
 
 ***bold and italic***
 
+~~sriken text~~
+
 * fruits
   * oranges
   * apples
